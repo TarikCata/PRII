@@ -1,1 +1,1 @@
-# PRII
+Predmet Programiranje II.
