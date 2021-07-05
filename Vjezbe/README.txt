@@ -1,1 +1,1 @@
-Vjezbe kod asistenta prof. Kemala Marića.(2020/2021)
+Vjezbe kod prof. Kemala Marića.(2020/2021)
