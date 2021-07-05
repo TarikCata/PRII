@@ -1,1 +1,1 @@
-Vjezbe kod prof. Kemala Marića.(2020/2021)
+Autor zadataka:Prof Kemal Marić.(2020/2021)
