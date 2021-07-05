@@ -1,0 +1,1 @@
+Nije sve odrađeno za 7. klasu.
